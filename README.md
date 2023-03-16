@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 --> :))
+
+Favorite books
+first is norwegian wood by Haruki Murakami it was published in 1987
+characters are Naoko, Toru, Midori and Kizuki
+second is south of the border, west of the sun by Haruki Murakami it was published in 1992
+characters are Hajime, Shimato and Yukiko
